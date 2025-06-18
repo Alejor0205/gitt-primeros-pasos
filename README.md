@@ -5,7 +5,7 @@ esa clase es bastante chimba mi parcero, solo repositorios
 aprendiendo andamoooooos
 
 ## Edicion desde Github
-esto es edicion se realizo desde Github
+esto es edicion se realizo desde Github actualizadooooo
 
 ### Colaboradores
 -Alejandro Romero
